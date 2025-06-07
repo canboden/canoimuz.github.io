@@ -3,8 +3,8 @@
 
 
 ### 🧰 Support
-- Discord: canoprak
-- Twitter: https://twitter.com/canoprak
+- Discord: canoimuz
+- Twitter: https://twitter.com/canoimuz
 
 ##  
 
