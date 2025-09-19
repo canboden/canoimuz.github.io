@@ -3,8 +3,8 @@
 
 
 ### 🧰 Support
-- Discord: canboden
-- Twitter: https://twitter.com/canboden
+- Discord: kaurik
+- Twitter: https://twitter.com/kaurik8
 
 ##  
 
