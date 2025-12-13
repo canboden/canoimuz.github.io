@@ -3,8 +3,8 @@
 
 
 ### 🧰 Support
-- Discord: craktop
-- Twitter: https://twitter.com/craktop
+- Discord: sulyavn
+- Twitter: https://twitter.com/sulyavn
 
 ##  
 
