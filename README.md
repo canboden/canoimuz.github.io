@@ -3,7 +3,7 @@
 
 
 ### 🧰 Support
-- Discord: limbik
+- Discord: limbikk
 - Twitter: https://twitter.com/limbikk
 
 ##  
