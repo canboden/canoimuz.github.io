@@ -3,8 +3,8 @@
 
 
 ### 🧰 Support
-- Discord: sulyavn
-- Twitter: https://twitter.com/sulyavn
+- Discord: limbik
+- Twitter: https://twitter.com/limbikk
 
 ##  
 
