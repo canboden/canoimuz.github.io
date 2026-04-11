@@ -3,8 +3,8 @@
 
 
 ### 🧰 Support
-- Discord: limbikk
-- Twitter: https://twitter.com/limbikk
+- Discord: shiftstep
+- Twitter: https://twitter.com/shiftstepp
 
 ##  
 
